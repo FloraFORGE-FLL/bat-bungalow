@@ -4,6 +4,8 @@
 
 ![Bat Bungalow](bat-bungalo.png)
 
+Bat houses are good because it helps keep the bugs/insects population down and then people do not need to use pesticide. Bat houses have a hole in the bottom that is narrow so predators or birds cant go in them. The hole also allow for waste to fall out. It helps control problematic insects without the use of pesticides.
+
 ## Printed with PHA 🌱
 
 **What is PHA?** PHA is a plastic made by tiny microbes! They munch on plant sugars and oils and store the PHA inside their bodies, kind of like how we store energy.
